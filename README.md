@@ -121,7 +121,26 @@ Tableau des combinaiʃons du Phoʃphore ʃaturé d'oxygéne, ou Acide phoʃphori
 
 - Obʃervations, 248
 
-...
+Tableau des combinaiʃons du Radical carbonique oxygéne, ou Acide carbonique avec les baʃes ʃalifiables dans l'ordre de leur affinité avec cet acide, 250
+
+- Obʃervations, 251
+
+Tableau des combinaiʃons du Radical muriatique oxygéne, ou Acide muriatique avec les baʃes ʃalifiables dans l'ordre de leur affinité avec cet acide, 253
+
+Tableau des combinaiʃons de l'Acide muriatique oxygéne avec les différentes baʃes ʃalifiables avec leʃquelles il eʃt ʃuʃceptible de s'unir, 254
+
+- Obʃervations, 255
+
+Tableau des combinaiʃons de l'Acide nitro-muriatique avec les baʃes ʃalifiables, rangées par ordre alphabétique, attendu que les affinités de cet acide ne ʃont point aʃʃez connues, 258
+
+- Obʃervations, 259
+
+Tableau des combinaiʃons du Radical fluorique oxygéne, ou Acide fluorique avec les baʃes ʃalifiables, dans l'ordre de leur affinité avec cet acide, 261
+
+- Obʃervations, 262
+
+
+
 
 ### TROISEME PARTE.
 
