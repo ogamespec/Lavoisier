@@ -139,6 +139,30 @@ Tableau des combinaiʃons du Radical fluorique oxygéne, ou Acide fluorique avec
 
 - Obʃervations, 262
 
+Tableau des combinaiʃons du Radical boracique oxygéne, avec les différentes baʃes ʃalifiables auxquelles il eʃt ʃuʃceptible de s'unir dans l'ordre de leur affinité avec cet acide, 264
+
+- Obʃervations, 265
+
+Tableau des combinaiʃons de l'Arʃenic oxygéné, ou Acide arʃenique avec les baʃes ʃalifiables dans l'ordre de leur affinité avec cet acide, 268
+
+- Obʃervations, 269
+
+Tableau des combinaiʃons du Molybdéne oxygéné, ou Acide molybdique avec les baʃes ʃalifiables, par ordre alphabétique, 272
+
+- Obʃervations, 273
+
+Tableau des combinaiʃons du Tungʃténe oxygéné, ou Acide tungʃtique avec les baʃes ʃalifiables, 274
+
+- Obʃervations, 275
+
+Tableau des combinaiʃons du Radical tartareux oxygéné, ou Acide tartareux avec les baʃes ʃalifiables, dans l'ordre de leur affinité avec cet acide, 277
+
+- Obʃervations, 278
+
+Tableau des combinaiʃons du Radical malique oxygéné, ou Acide malique avec les baʃes ʃalifiables par ordre alphabétique, 281
+
+- Obʃervations, 282
+
 
 
 
