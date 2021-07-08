@@ -163,8 +163,77 @@ Tableau des combinaiʃons du Radical malique oxygéné, ou Acide malique avec le
 
 - Obʃervations, 282
 
+Tableau des combinaiʃons du Radical citrique oxygéné, ou Acide citrique avec les baʃes ʃalifiables, dans l'ordre de leur affinité avec cet acide, 284
 
+- Obʃervations, 285
 
+Tableau des combinaiʃons du Radical pyroligneux oxygéné, ou Acide pyro-ligneux avec les baʃes ʃalifiables dans l'ordre de leur affinité avec cet acide, 286
+
+- Obʃervations, 287
+
+Tableau des combinaiʃons du Radical pyrotartareux oxygéné, ou Acide pyro-tartareux avec les baʃes ʃalifiables dans l'ordre de leur affinité avec cet acide, 288
+
+- Obʃervations, 289
+
+Tableau des combinaiʃons du Radical pyro-muqueux oxygéné, ou Acide pyro-muqueux avec les baʃes ʃalifiables, dans l'ordre de leur affinité avec cet acide, 290
+
+- Obʃervations, 291
+
+Tableau des combinaiʃons du Radical oxalique oxygéné, ou Acide oxalique avec les baʃes ʃalifiables, dans l'ordre de leur affinité avec cet acide, 292
+
+- Obʃervations, 293
+
+Tableau des combinaiʃons du Radical acéteux oxygéné, par un premier degré d'oxygénation avec les baʃes ʃalifiables, ʃuviant l'ordre de leur affinité avec cet acide, 295
+
+- Obʃervations, 295
+
+Tableau des combinaiʃons du Radical acéteux oxygéné par un ʃecond degré d'oxygénation, ou Acide acétique, avec les baʃes ʃalifiables, dans l'ordre de leur affinité avec cet acide, 298
+
+- Obʃervations, 299
+
+Tableau des combinaiʃons du Radical ʃuccinique oxygéné, ou Acide ʃuccinique, avec les baʃes ʃalifiables, dans l'ordre de leur affinité avec cet acide, 300
+
+- Obʃervations, 301
+
+Tableau des combinaiʃons du Radical benzoïque oxygéné, ou Acide benzoïque, avec les différentes baʃes ʃalifiables, rangées par ordre alphabétique, 302
+
+- Obʃervations, 303
+
+Tableau des combinaiʃons du Radical camphorique oxygéné, ou Acide camphorique, avec les baʃes ʃalifiables, par ordre alphabétique, 304
+
+- Obʃervations, 305
+
+Tableau des combinaiʃons du Radical gallique oxygéné, ou Acide gallique, avec les baʃes ʃalifiables rangées par ordre alphabétique, 306
+
+- Obʃervations, 307
+
+Tableau des combinaiʃons du Radical laćtique oxygéné, ou Acide laćtique, avec les baʃes ʃalifiables, par ordre alphabétique, 308
+
+- Obʃervations, 309
+
+Tableau des combinaiʃons du Radical ʃaccholaćtique oxygéné, ou Acide ʃaccholaćtique, avec les baʃes ʃalifiables, dans l'ordre de leur affinité avec cet acide, 310
+
+- Obʃervations, 311
+
+Tableau des combinaiʃons du Radical formique oxygéné, ou Acide formique, avec les baʃes ʃalifiables, dans l'ordre de leur affinité avec cet acide, 312
+
+- Obʃervations, 313
+
+Tableau des combinaiʃons du Radical bombique oxygéné, ou Acide bombique, avec les baʃes ʃalifiables, par ordre alphabétique, 314
+
+- Obʃervations, 315
+
+Tableau des combinaiʃons du Radical ʃébacique oxygéné, ou Acide ʃébacique, avec les baʃes ʃalifiables, dans l'ordre de leur affinité avec cet acide, 316
+
+- Obʃervations, 317
+
+Tableau des combinaiʃons du Radical lithique oxygéné, ou Acide lithique, avec les baʃes ʃalifiables, rangées par ordre alphabétique, 318
+
+- Obʃervations, 319
+
+Tableau des combinaiʃons du Radical pruʃʃique oxygéné, ou Acide pruʃʃique, avec les baʃes ʃalifiables, dans l'ordre de leur affinité avec cet acide, 320
+
+- Obʃervations, 322
 
 ### TROISEME PARTE.
 
