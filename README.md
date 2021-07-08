@@ -55,3 +55,51 @@ CHAP. XVI. De la formation de Sels neutres, ℇ des différentes baʃes qui entr
 - Des Subʃtances métalliques, 173
 
 CHAP. XVII. Suite des réflexions ʃur les baʃes ʃalifiables, ℇ ʃur la formation des Sels neutres, 179
+
+### SECONDE PARTIE.
+
+De la Cominaisʃon des Acides avec les baʃes ʃalifibles, ℇ de la Formation des Sels neutres.
+
+Avertissement, 189
+
+Tableau des Subʃtances ʃimples, 192
+
+- Obʃervations, 193
+
+Tableau des Radicaux ou baʃes oxidables ℇ acidifiables, compoʃés, qui entrent dans les combinaiʃons à la maniére des ʃbuʃtances ʃimples, 196
+
+- Obʃervations, 197
+- Obʃervations ʃur les combinaiʃons de la lumiére ℇ du calorique avec différentes ʃubʃtances, 200
+
+Tableau des combinaiʃons binaries de l'oxygéne avec les ʃubʃtances métalliques ℇ non métalliques oxidables ℇ acidifiables, 203
+
+- Obʃervations, ibid.
+
+Tableau des combinaiʃons de l'Oxygéne avec les radicaux compʃés, 208
+
+- Obʃervations, 209
+
+Tableau des combinaiʃons binaries de l'Azote avec les ʃubʃtances ʃimples, 212
+
+- Obʃervations, 213
+
+Tableau des combinaiʃons binaries de l'Hydrogéne avec les ʃubʃtances ʃimples, 216
+
+- Obʃervations, 217
+
+Tableau des combinaiʃons binaries du Soufre non oxygéne avec les ʃubʃtances ʃimples, 220
+
+- Obʃervations, 221
+
+Tableau des combinaiʃons binaries du Phoʃphore non oxygéne avec les ʃubʃtances ʃimples, 222
+
+- Obʃervations, 223
+
+Tableau des combinaiʃons binaries du Charbon non oxygéne avec les ʃubʃtances ʃimples, 226
+
+- Obʃervations, 227
+- Obʃervations ʃur les radicaux muriatique, fluorique ℇ boracique, ℇ ʃur leurs combinaiʃons, 229
+- Obʃervations ʃur la combinaiʃon de métaux les uns avec les autres, 230
+
+Tableau des combinaiʃons de l'Azote ou Radical nitique, porté à l'état d'acide nitreux par la combinaiʃon d'une ʃuffiʃante quantité d'oxygéne, avec les baʃes ʃalifiables, dans l'ordrede leur affinité avec cet acide, 231
+
